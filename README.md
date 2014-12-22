@@ -36,268 +36,175 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A generall historie of the Netherlands VVith the genealogie and memorable acts of the Earls of Holla
+
+1. TO THE RIGHT NOBLE, AND MOST WORTHY OF ALL HONOVRS, AND ALL TITLES,
+
+1. Iohn Francis Petit to the courteous Reader.
+
+1. THE TRANSLATOR TO THE READER.
+
 #####Body#####
 
-1. THIERRY of Aquitaine, the first Earle of Holland. 
+1. A CHRONOLOGIE OF THE  Earles of Holland and Zeeland, their number, descent, and genealogie; together with their gouernours, regents, and rulers of their common weales.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. A HISTORIE OF THE NETHERLANDS, OR SEVENTEENE PROVINCES.
 
-1. THIERRY THE SECOND OF THAT name, peaceable Earle of Holland and Zeeland, and Lord of Friseland.
+    _ THIERRY of Aquitaine, the first Earle of Holland. 
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ THIERRY THE SECOND OF THAT name, peaceable Earle of Holland and Zeeland, and Lord of Friseland.
 
-1. ARNVLPH OR ARNOLD, THIRD  Earle of Holland and Zeeland, and Lord of Friseland. 
+    _ ARNVLPH OR ARNOLD, THIRD  Earle of Holland and Zeeland, and Lord of Friseland. 
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ THIERRY THE THIRD OF THAT name, sonne to Cont ARNOLD, was fourth Earle of Holland, Zeeland, and Lord of Friseland.
 
-1. THIERRY THE THIRD OF THAT name, sonne to Cont ARNOLD, was fourth Earle of Holland, Zeeland, and Lord of Friseland.
+    _ THIERRY THE FOVRTH OF THAT name, and fift Earle of Holland and Zeeland, Lord of Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ FLORIS THE FIRST OF THAT name, the sixt Earle of Holland and Zeeland, Lord of Friseland.
 
-1. THIERRY THE FOVRTH OF THAT name, and fift Earle of Holland and Zeeland, Lord of Friseland.
+    _ GERTRVDE, WIDOW TO CONT FLORIS, Mother and Guardian to young Cont Thierry, sonne to Floris.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ ROBERT CALLED THE FRISON, Aduocat Generall to young Cont THIERRY, second husband to the Countesse Gertrude.
 
-1. FLORIS THE FIRST OF THAT name, the sixt Earle of Holland and Zeeland, Lord of Friseland.
+    _ GODFREY THE CROOKED, DVKE of Lorraine, the ninth in number of the Earles of Holland, the which he vsurped for a time.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ THIERRY THE FIFTH OF THAT name, Earle of Holland and Zeeland, Lord of Friseland.
 
-1. GERTRVDE, WIDOW TO CONT FLORIS, Mother and Guardian to young Cont Thierry, sonne to Floris.
+    _ FLORIS, SVRNAMED THE FAT, THE second of that name, and eleuenth Earle of Holland and Zeeland, Lord of Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ THIERRY THE SIXT OF THAT name, and twelfth Earle of Holland and Zeeland, Lord of Friseland.
 
-1. ROBERT CALLED THE FRISON, Aduocat Generall to young Cont THIERRY, second husband to the Countesse Gertrude.
+    _ FLORIS THE THIRD OF THAT name, the thirteenth Earle of Holland and Zeeland, Lord of Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ THIERRY THE SEVENTH OF THAT name, foureteenth Earle of Holland and Zeeland, Lord of Friseland.
 
-1. GODFREY THE CROOKED, DVKE of Lorraine, the ninth in number of the Earles of Holland, the which he vsurped for a time.
+    _ ADA, CONTESSE OF HOLLAND and Zeeland, the fifteenth in the gouernment of the said Earledomes.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ WILLIAM THE FIRST OF THAT name, the sixteenth Earle of Holland and Zeeland, Lord of Friseland.
 
-1. THIERRY THE FIFTH OF THAT name, Earle of Holland and Zeeland, Lord of Friseland.
+    _ FLORIS THE FOVRTH OF THAT name, the seuenteenth Earle of Holland and Zeeland, Lord of Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ WILLIAM, THE SECOND OF THAT name, eighteenth Earle of Holland and Zeeland, Lord of Friseland, and afterwards king of Romans.
 
-1. FLORIS, SVRNAMED THE FAT, THE second of that name, and eleuenth Earle of Holland and Zeeland, Lord of Friseland.
+    _ FLORIS THE FIFTH OF THAT name, the nineteenth Earle of Holland and Zeeland, Lord of Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ IOHN THE FIRST OF THAT name, the twentieth Earle of Holland and Zeeland, Lord of Friseland.
 
-1. THIERRY THE SIXT OF THAT name, and twelfth Earle of Holland and Zeeland, Lord of Friseland.
+    _ IOHN EARLE OF HENAVLT, THE second of that name, one and twentieth Earle of Holland and Zeeland, Lord of West-Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. THE SECOND BOOKE. 
 
-1. FLORIS THE THIRD OF THAT name, the thirteenth Earle of Holland and Zeeland, Lord of Friseland.
+    _ WILLIAM THE THIRD OF THAT name, the two and twentieth Earle of Holland, Zeeland, and Henault, Lord of Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ WILLIAM THE FOVRTH OF THAT name, the three and twentieth Earle of Holland and Zeeland, Lord of Friseland, and Earle of Henault.
 
-1. THIERRY THE SEVENTH OF THAT name, foureteenth Earle of Holland and Zeeland, Lord of Friseland.
+    _ MARGVERITE EMPRESSE, THE 24. commaunding in Holland, Zeeland, and Friseland, Contesse of Henault.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ MARGVERITE EMPRESSE, THE  24. commanding in Holland, Zeeland, and Friseland, Countesse of Henault.
 
-1. ADA, CONTESSE OF HOLLAND and Zeeland, the fifteenth in the gouernment of the said Earledomes.
+    _ WILLIAM OF BAVARIA, THE 5. OF that name, the 25▪ Earle of Holland, and Zeeland, Lord of Friseland, and Earle of Henault, called the madde.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ ALBERT OF BAVARIA 26. EARLE of Holland and Zeeland, Lord of Friseland, and Palatin of Henault.
 
-1. WILLIAM THE FIRST OF THAT name, the sixteenth Earle of Holland and Zeeland, Lord of Friseland.
+    _ WILLIAM THE 6. OF THAT NAME, the 27 Earle of Holland and Zeeland, Lord of Friseland, and Earle of Henault.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ IAQVELINE OF BAVARIA, THE 28▪ Gouernesse in Holland, Zeeland and Friseland, and Contesse of Henault.
 
-1. FLORIS THE FOVRTH OF THAT name, the seuenteenth Earle of Holland and Zeeland, Lord of Friseland.
+    _ IHON OF BAVARIA, CARRYING himselfe as Gouernor, then Earle of Holland and Zeeland, Lord of Friseland.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. 30 Philippus Burgund Cogn. Bonus.PHILIP DVKE OF BOVRGONGNE, Earle of Holland and Zeeland, lord of Friseland, Duke of Brabant, Lembourg, and Luxemburg, Earle of Flanders, Arthois, Henault, and Namur, Lord of Salins and Macklyn.The first wife I espous'd was Lady Michell,The second, lady Bonne; the third Isabell,When the false Ganthois, and the Brugeois •…reRebellious armes, a peace with France I swore:The golden Fleece I first of all deuisde,Laide siege at Calais, Luxembrough surprisde.Subdued Liege: In Holland, I opprestThe league of Hamecons: foure and thirty yearesI raignd, and Dijeon drunke my funerall teares.
 
-1. WILLIAM, THE SECOND OF THAT name, eighteenth Earle of Holland and Zeeland, Lord of Friseland, and afterwards king of Romans.
+1. Carolus Dux Burgund.CHARLES THE WARLIKE, THE 1. OF that Name, the 31. Earle of Holland and Zeeland, Lord of Frizeland, Duke of Bourgongne, Brabant, Lembourg. Luxemburg, Earle of Flanders, Arthois, Henault and Namur, Lord of Salins and Macklyn.Of so many goodly Countries successor to my father,Of three wiues I had but one only heire.At Montlehery I defeyted the French brauely,At Macklyn I erected my heigh Parliament.Being incensed I made the Liegeois feele my splene,If against the Cantons I had not taken Armes,I had beene more happie, and cruell deathHad not shewed his force against me at Nancy.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ MARY DVTCHESSE OF BOVRGONgne,  Countesse 32. ruling in Holland and Zeeland, Duchesse of Brabant, Lembourg, Luxembourg and Geldres, Countesse of Flanders, Arthois, Henault, Namur, and of Zutphen, Lady of Sallins and Macklin, Marquis of the holy Empire.
 
-1. FLORIS THE FIFTH OF THAT name, the nineteenth Earle of Holland and Zeeland, Lord of Friseland.
+1. 〈◊◊〉 AustriusMAXIMILIAN ARCH-DVKE OF Austria, sonne to the Emperour Fredericke, by the Lady Marie of Bourgongne his wife the 33. Earle of Holland Zeeland, and Lord of Freezland.Nor am I Heire, nor Earle, but countableVnto my sonne, and for his good I hold it,I onely twelue yeares kept the Dukedome stable,To render it to him at yeares •…'vphold it,What I possesse is his, for him I keepe.My Empire me contents, no more I thirst,Two wiues I had, but now with death I sleepe,At Newstad with my Mother, I lye Herst,
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ ENGELBERT EARLE OF NASSAV, the first Gouernor, Lieutenant and Captaine generall for the Prince, in the Lowe Countries.
 
-1. IOHN THE FIRST OF THAT name, the twentieth Earle of Holland and Zeeland, Lord of Friseland.
+    _ ALBERT DVKE OF SAXONY, LAND•… graue of Misnia, second Gouernor, Lieutenant and Generall for the Prince in his Netherlands.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ PHILIP OF AVSTRIA THE 2. OF that name, the 34. Earle of Holland and Zeeland, Lord of Friseland: Duke of Bourgongne, &c Earle of Flanders, &c. Marquis of the holy Empire.
 
-1. IOHN EARLE OF HENAVLT, THE second of that name, one and twentieth Earle of Holland and Zeeland, Lord of West-Friseland.
+    _ GEORGE DVKE OF SAXONY GOuernor of the Netherlands, for the Archduke Phillip of Austria Prince and Lord of the said Countrie.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. CAROLVS 5 IMPERATORCHARLES OF AVSTRIA THE 2, of that name, the 35. Earle of Holland and Zeeland, the first Temporall Lord of the Towne and Diocesse of Vtrecht, of Friseland, Oueryseel and Groninghen. The fift Emperour of that name.England, France, Afrique, Turkey, Germanie,Haue felt my spirit to their seuerall losses,Beyond Gibralter are my pillars planted,My wife a Portugaise, and Philips daughterThrough my victorious powers fayre ItalieHath seemd to tremble, when n•…re PauiaI plotted 'gainst the French, and tooke as Captiue,Francis the first, their famous warre-like King.
+Then with fresh Souldiers being from Spaine supplyde,I quite did tame the haughtie Germaines pride;I call to witnesse prisoners that were Princes,As Saxonie and the Lans-graue: the rich Ransomes,Engines of warre, with which (as gifts constrainde)They made peace with my furie; great and smallWere ransomde as I pleas'd, my Spanish ForcesTooke holy Rome, the Italians greatest Terror,There three dayes was their Pillage, in no placeThe Pope found succour, but his powers and heeLay in their Forts besiegde, not Issuing forthVntill their Ransomes bought them a free way,From which the Almaine armie receiu'd pay:Was it not I with blowes as quicke as lightning,Conquerd Golletto, Tunis, and Argier?And made the famous Pyrate Barbarosa,At Ariaden shrinck vnder my Sinewe?Who bade fare-well to Africa by flight,Which also stoopt and sunke vnder my might?Did not I Muly-assen then erect,When I Barbarians and the Moores had tamed?Was it not I that with my Campe of AlmaynesFrom Austria chasde the great Turke Solyman?With which the noble conquests that I heldIn the West-Indyes, may be paraleld.Were not my men the first that did finde out,Those mynes of Peru-gold? and made bolde wayThrough sandy bounds of rich America?Vnder the obedience of the Spanish lawesBringing their Kings? what though at first afrontThey Kingly stroue, being vanquisht, there my slaues;Nor ought the world forget my souldiers deedesThat two and twenty millions put to swordOf rebell Indians, forcing the remaynesLike brutish beasts to vnder-goe base paines?Am not I CHARLES fifth Emperour of that name,Throughout the vniuersall Globe the Terror?But when I thought mee firme-vnder my stroakeThe Spaniard toucht, the Almaines left my yoake,And a new Trouble nere conceiude beforeDid vnawares beset mee, Germaine Princes,Confederates came vnexpected FoesAnd forest me flie from Inspruck all vnfurnisht:I that was woont Foes with a whip to chase,Was forst to worke my safetie by my flight,Death to my pride, and furie of my Sword;Yet all I wrought either by force or Law,When I to narrow straights the Cleuoys forestThat Gelders, Freezeland, Vtrecht, in the endAnd beyond Island all the wealth was mine:Vnder my Lawes stoopt Groninghen and Cambray:Fiftie two yeares I Holland did possesseThen to my Sonne all titles I resignde,My flesh lyes at Granado, my soule faresLike her eternal selfe, from humaine eares.
 
-1. WILLIAM THE THIRD OF THAT name, the two and twentieth Earle of Holland, Zeeland, and Henault, Lord of Friseland.
+    _ MARGVERITE OF AVSTRIA, PRINcesse widow of Castille, Dowager of Sauoy, Aunte to the Emperour Charles the 5. Gouernesse of the Netherlands.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ MARY OF AVSTRIA, QVEENE DOWager of Hongary, sister to the Emperor Charles the 5. Gouernesse of the Netherlands.
+The Argument of the seauenth Booke.THE Emperor returnes into Germany and treates of religion, Herman
+1. D. GShilippus Rex Catholicus.PHILIP OF AVSTRIA, THE SIX AND thirtieth Earle of Holland, Zeeland, &c. the second of that name, duke of Brabant, &c. Earle of Flanders, &c.By true and right discent, of Holland I am Lord,And of the wealthie Netherlands, vnited by accord:But cruell counsell of th' Inquisition,Was cause that did procure their woe and great destruction.Loue burning in my brest, did me his subiect make,And moued me foure seuerall wiues one after other take:My cousin last of them, a sonne onely did leaueOf tender yeares, when cruell death did her of life bereaue.
 
-1. WILLIAM THE FOVRTH OF THAT name, the three and twentieth Earle of Holland and Zeeland, Lord of Friseland, and Earle of Henault.
+    _ EMANVEL PHILIBERT DVKE OF SAuoy, Prince of Piemont, Gouernor and Lieutenant generall of the Netherlands, for King PHILIP.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ MARGVERITE OF AVSTRIA, DVTches of Parma, bastard daughter to the Emperor Charles the fifth, Gouernesse of the Netherlands for king Philip.
 
-1. MARGVERITE EMPRESSE, THE 24. commaunding in Holland, Zeeland, and Friseland, Contesse of Henault.
+1. FERDINANDVS A TOLEDO DVX ALVA MAR: CORIAE GVBERNAT: ET CAPITA: GENER BELGICAE.FERDINANDO ALVARES, OF TOLEdo, duke of Alua, Lieutenant Gouernor and Captaine Generall of the Netherlands for Philip the second, K. of Spaine.To bring the Belgians (that heretickes were thoughtAn•… rebels) in subiection, all practises I soughtTo put invre, and rul'd by force and crueltie:Constraining them by meere deceit, by fraud, and subtiltie,To build vp castles great, and make strong citadels,That serued for to bridle them, because they •…re rebels.The earles of Horne and Egmont I in Brussels did behead,And no man durst appeare to aid them in their need.Of each mans moueables the tenth part I did craue,And not content, the twentieth and the hundreth part would haue.And when I had the Netherlands turmoyled and tost,Through my default, the king my master in the end them lost.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ WILLIAM OF NASSAV, PRINCE OF Orange, Earle of Nassau, of Vianden, of Catzeneleboghen, Diets, &c. Gouernour of Holland, Zeeland, and Vtrecht.
 
-1. MARGVERITE EMPRESSE, THE  24. commanding in Holland, Zeeland, and Friseland, Countesse of Henault.
+1. LVDOVICVS REQVESEN. MAGN. COMEN▪ REG. CAST. R. M. CON. GVB. ETCAP. GEN. BEL.DOM LEWIS DE REQVESENS, GREAT Commander of Castile, Gouernor, Lieutenant, and Captaine generall for the King in the Netherlands.My predecessors course, that me the way had ledI held, and in his gouernment I was established:Where while I rul'd I did the Kings nauy beholdOrethrowne and vanquisht, and their great pride controld.My actions to my Prince did little good prooure,And at my hands the States did none or little hurt endure.My death (by Spaniards mutinie) to them did guieA great meanes to helpe themselues, and their estates relieue.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ DON IOHN OF AVSTRIA BAStard sonne to the Emperor Charles the fift Gouernor of the Netherlands for the King of Spaine.
 
-1. WILLIAM OF BAVARIA, THE 5. OF that name, the 25▪ Earle of Holland, and Zeeland, Lord of Friseland, and Earle of Henault, called the madde.
+    _ A letter written by the Prince of Orange1576To the Generall estates of the Netherlands assembled at Brussells the last of Nouember. 1576.
+DVring these alterations of the Spaniards and the sacke & massaker of Antwerp, the Brabant and otherIN the meane time the Spaniardes beeing by meanes of the towne of Mastricht 1577. dispersed in diuer
+    _ After the publication of the perpetuall Edict, Don Iohn sent his Deputies to Gheertrudenberghe to treate with the Prince of Orange, and the Deputies of Holland and Zeeland; of which conference, and of their speeches of eyther side, I haue set downe a true narration.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ The Proposition of the Duke of Arschot Baron of Hierges, and other Deputies of Don Iohn of Austria, made at Geertrudenbergh, to the Prince of Orange and the Estates of Holland and Zeeland, the two and twenty ofMay. 1577.
 
-1. ALBERT OF BAVARIA 26. EARLE of Holland and Zeeland, Lord of Friseland, and Palatin of Henault.
+    _ The answere of the Prince of Orange and the Deputies of the Estates of Holland and Zeeland to the sayd Proposition.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+      * Made at Geertrudenbergh the foure and twenty of Maie. 1577.
 
-1. WILLIAM THE 6. OF THAT NAME, the 27 Earle of Holland and Zeeland, Lord of Friseland, and Earle of Henault.
+    _ A declaration sent to the King of Spaine, contayning a iustification of her Maiesties proceedings with the Estates of the Netherlands By Maister Thomas Wilkes.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ MATHIAS ARCHDVKE OF 1578. Austria Gouernor generall of the Netherlands.
 
-1. IAQVELINE OF BAVARIA, THE 28▪ Gouernesse in Holland, Zeeland and Friseland, and Contesse of Henault.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. IHON OF BAVARIA, CARRYING himselfe as Gouernor, then Earle of Holland and Zeeland, Lord of Friseland.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. MARY DVTCHESSE OF BOVRGONgne,  Countesse 32. ruling in Holland and Zeeland, Duchesse of Brabant, Lembourg, Luxembourg and Geldres, Countesse of Flanders, Arthois, Henault, Namur, and of Zutphen, Lady of Sallins and Macklin, Marquis of the holy Empire.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. ENGELBERT EARLE OF NASSAV, the first Gouernor, Lieutenant and Captaine generall for the Prince, in the Lowe Countries.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. ALBERT DVKE OF SAXONY, LAND•… graue of Misnia, second Gouernor, Lieutenant and Generall for the Prince in his Netherlands.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. PHILIP OF AVSTRIA THE 2. OF that name, the 34. Earle of Holland and Zeeland, Lord of Friseland: Duke of Bourgongne, &c Earle of Flanders, &c. Marquis of the holy Empire.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. GEORGE DVKE OF SAXONY GOuernor of the Netherlands, for the Archduke Phillip of Austria Prince and Lord of the said Countrie.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. MARGVERITE OF AVSTRIA, PRINcesse widow of Castille, Dowager of Sauoy, Aunte to the Emperour Charles the 5. Gouernesse of the Netherlands.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. MARY OF AVSTRIA, QVEENE DOWager of Hongary, sister to the Emperor Charles the 5. Gouernesse of the Netherlands.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. EMANVEL PHILIBERT DVKE OF SAuoy, Prince of Piemont, Gouernor and Lieutenant generall of the Netherlands, for King PHILIP.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. MARGVERITE OF AVSTRIA, DVTches of Parma, bastard daughter to the Emperor Charles the fifth, Gouernesse of the Netherlands for king Philip.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. WILLIAM OF NASSAV, PRINCE OF Orange, Earle of Nassau, of Vianden, of Catzeneleboghen, Diets, &c. Gouernour of Holland, Zeeland, and Vtrecht.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. DON IOHN OF AVSTRIA BAStard sonne to the Emperor Charles the fift Gouernor of the Netherlands for the King of Spaine.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. A letter written by the Prince of Orange1576To the Generall estates of the Netherlands assembled at Brussells the last of Nouember. 1576.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-DVring these alterations of the Spaniards and the sacke & massaker of Antwerp, the Brabant and other
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-IN the meane time the Spaniardes beeing by meanes of the towne of Mastricht 1577. dispersed in diuer
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. After the publication of the perpetuall Edict, Don Iohn sent his Deputies to Gheertrudenberghe to treate with the Prince of Orange, and the Deputies of Holland and Zeeland; of which conference, and of their speeches of eyther side, I haue set downe a true narration.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. The Proposition of the Duke of Arschot Baron of Hierges, and other Deputies of Don Iohn of Austria, made at Geertrudenbergh, to the Prince of Orange and the Estates of Holland and Zeeland, the two and twenty ofMay. 1577.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. The answere of the Prince of Orange and the Deputies of the Estates of Holland and Zeeland to the sayd Proposition.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. A declaration sent to the King of Spaine, contayning a iustification of her Maiesties proceedings with the Estates of the Netherlands By Maister Thomas Wilkes.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. MATHIAS ARCHDVKE OF 1578. Austria Gouernor generall of the Netherlands.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. ALEXANDER FARNESIVS PARMAE ET PLACEN: DVX GVBERN: ET CAP GENER: BELGICAE.ALEXANDER FARNEZE DVKE OF 1578. Parma and Placentia, Lieutenant and Captaine Generall for the King of Spaine.Of all the Gouernor; that in the Netherland,(Wherof most were vnfit) did take their wars in hand,I was the only man, that rul'd them prudently:And longer then thē all maintaind the wars co•…agiously.Like valiant champion, and h•…d a most great careMy promise to fulfill: for such a royall minde I bare,That neuer in my life vnto my enemie,I falcified my word or faith, which was the cause that IA good report obtain'd, which was my recompence,Else gaind I nought, but for my paines was put to great exp•…nce.
 ❧ The Generall Estates of the vnited Prouinces of Gueldres, Holland, Zeeland, Zutphen, Friseland, Ou
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. THE GENERALL ESTATES 1581 of the vnited Prouinces.The wicked counsell of the young King Roboam,The most vnlawfull lust that proud Tarquins mind o'recame,And of those two young kings the great peruersitie,Was th'onely cause that did bereaue them of their royaltie.Of twelue Tribes, onely one to Roboam remain'd,And Tarquin driuen out of Rome, the people straight obtain'dThe gouernment, and the chiefe soueraigntieOf Rome, and to the Senat did commit th'authoritie.The crueltie of the Inquisitors of Spaine,That long in the vnited lands did ciuile warres maintaine,In th'end was th'onely meanes and cause, that after weThe Spanish yoke long time had borne, obtain'd our libertie.
 
-1. FRANCIS DE VALOIS, DVKE OF ANiou, 1582 of Brabant, &c. Earle of Flanders, &c. Protector of the Belgicke Libertie.
+    _ FRANCIS DE VALOIS, DVKE OF ANiou, 1582 of Brabant, &c. Earle of Flanders, &c. Protector of the Belgicke Libertie.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ The Prince of Orange to Cont Iohn of Nassau his brother.
 
-1. The Prince of Orange to Cont Iohn of Nassau his brother.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. A Letter of aduice written by the Seignior of Saint Aldegonde,1585 to the Seignior of Metkerke, president of Flaunders, touching the peace.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ A Letter of aduice written by the Seignior of Saint Aldegonde,1585 to the Seignior of Metkerke, president of Flaunders, touching the peace.
 This Summer there were many attempts made against Groning, and the Hollanders and they of West-Frise
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. ELIZABETHA ANGLIAE REGINAElizabeth, Queene of England, France and Ireland, Defendresse1585of the Catholicke Faith, and Protectrix of the libertie of the vnited Prouinces of the Netherlands.When God by grace had me aduanc't vnto my regall state,(Which till this time I ruled haue in peace most fortunate)To serue him, and my subiects good to seeke, it was my care:And those that forced were to flie by meanes of bloody warre,'Gainst them by Spaniards made, I did most willingly relieue,And with a feruent zeale to them all aid and comfort giue,And by what meanes I could deuise, my mind I alwaies bent,Their imminent decay and danger great for to preuent.And to that end protectrix of their countrey I became,Defending them with all my power (to my eternall fame)Wherein no feare of Spanish force ere could my courage quaile,Nor in my resolution good, make me in ought to faile.
 
-1. Robert Dudley Earle of Leicester, Lieutenant and Captaine1586Generall for the Queene of England, Protectrix of the vnited Prouinces of the Netherlands.
+    _ Robert Dudley Earle of Leicester, Lieutenant and Captaine1586Generall for the Queene of England, Protectrix of the vnited Prouinces of the Netherlands.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. A Letter from the Queene of England, to the estates of the vnited Prouinces, sent by Mr. Thomas Wilkes the 19. of Iuly 1586.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ A Letter from the Queene of England, to the estates of the vnited Prouinces, sent by Mr. Thomas Wilkes the 19. of Iuly 1586.
 The same moneth her Maiestie did write an other letter to the Prince of Parma, in answer of one writ
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. A letter from the Queene of England, to the Prince of Parma, in Iuly 1586.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ A letter from the Queene of England, to the Prince of Parma, in Iuly 1586.
 The same day the Earle of Leicester made an other act of restraint, or recalling of the counsell of 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ A letter written by VVarmond of Stochelen a Gentleman of Germany to a friend of his, touching the betraying of Deuenter and the fort beforeZutphen.
+IN the beginning of Winter the Prince of Parma had caused the Earle of Mansfield, 1587. to besiege tVVith this inscription. 1592.QVOD. ALEXANDER. FARNESIVS. PARMAE. PLACENTIAE. DVX. TERTIVS. MAGNO. INThe Argument of the 1592. fourteenth Booke.COnt Phillip of Nassau runs ouer the country of Luxembour
+    _ MAVRICE OF NASSAV BORNE 1593. Prince of Orange; Marquis of La Vere and of Flushing; Earle of Nassau, Meurs, Catsenellebogen, Dyets, Vianden, &c. Baron of Breda &c. gouernor of Gelder, of Holland, Zeeland, Vtrecht and Ouerysell. Great Captaine and Admirall generall of the vnited Prouinces of the Low-countries.
 
-1. A letter written by VVarmond of Stochelen a Gentleman of Germany to a friend of his, touching the betraying of Deuenter and the fort beforeZutphen.
+    _ SVRCVLVS FACTVS ARBOR. 
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-IN the beginning of Winter the Prince of Parma had caused the Earle of Mansfield, 1587. to besiege t
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-VVith this inscription. 1592.QVOD. ALEXANDER. FARNESIVS. PARMAE. PLACENTIAE. DVX. TERTIVS. MAGNO. IN
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ ERNESTVS ARCHDVKE OF AVSTRIA, 1594. Lieutenant Gouernor and Captaine Generall for the King of Spaine in the Netherlands.
 
-1. MAVRICE OF NASSAV BORNE 1593. Prince of Orange; Marquis of La Vere and of Flushing; Earle of Nassau, Meurs, Catsenellebogen, Dyets, Vianden, &c. Baron of Breda &c. gouernor of Gelder, of Holland, Zeeland, Vtrecht and Ouerysell. Great Captaine and Admirall generall of the vnited Prouinces of the Low-countries.
+    _ ALBERTVS CARDINALL OF AVStria, 1595. Lieutenant and Captaine generall for the King of Spaine in the Netherlands.
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+1. ISABELLA AVSTRIACA. PHIL. II. CATH. HIS. REG. FIL.ISABELLA CLARA EVGENIA, INfanta 1598 of Spaine, Duchesse of Brabant, of Lembourg, &c. Countesse of Flanders, Arthois, Bourgoigne, &c. Palatine of Henault, and Namur. Ladie of Salines and Macklin.My father minding for to make a royall mariageTwixt me and th' Archduke Albert, gaue me for my heritageThe Netherlands, with Burgondie, and Countie Charolois,To hold in chiefe of Spaine (and I of him did make my choice)But the conditions ouer hard, and far too strict withall,Retain'd the Netherlands in too much seruitude and thrall:But Guelder, Friseland, Utrecht, and the Hollanders, alsoOuerissel, Groning, Zutphen, and Zeeland, will not once showObedience to the Spaniard, nor the house of Austria,And doe the great'st reuenue of my liuing beare away:But Brabant, Flanders, and Arthois, Henault, and eke Lembourg.To me are true, with Burgondie, Namur, and Luxembourg.
 
-1. SVRCVLVS FACTVS ARBOR. 
+1. THE XVI. BOOKE. 
 
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ The Archdukes.
 
-1. ERNESTVS ARCHDVKE OF AVSTRIA, 1594. Lieutenant Gouernor and Captaine Generall for the King of Spaine in the Netherlands.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. ALBERTVS CARDINALL OF AVStria, 1595. Lieutenant and Captaine generall for the King of Spaine in the Netherlands.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. The Archdukes.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
-
-1. The answer of the Squadron, Electo, and Counsell of the Archduke  Albert his men of warre, retired to Hoochstraten.
-
-    _ Made at Geertrudenbergh the foure and twenty of Maie. 1577.
+    _ The answer of the Squadron, Electo, and Counsell of the Archduke  Albert his men of warre, retired to Hoochstraten.
 
 #####Back#####
 
-1. The exposition of some words vsed throughout the whole course of the History.
+1. A Table of all the memorable things conteined in this Historie of the Netherlands.
+
+1. ERRATA.
+
+    _ The exposition of some words vsed throughout the whole course of the History.
 
 **Types of content**
 
